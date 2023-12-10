@@ -1,4 +1,5 @@
 <div style="display:none;">
-<a href="https://jurnal.stahnmpukuturan.ac.id/system/slot-macau/">rajaslot303</a>
-<a href="https://jurnal.stahnmpukuturan.ac.id/system/slot-macau/">slot macau</a>
+<a href="https://lldikti2.kemdikbud.go.id/system/slotdemo/">slot demo</a>
+<a href="https://polakesatu.pekalongankab.go.id/download/system/slotdemo/">slot demo terlengkap</a>
+<a href="https://polakesatu.pekalongankab.go.id/download/system/slotdemo/">slot demo terlengkap</a>
 </div>
